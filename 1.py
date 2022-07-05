@@ -1,4 +1,5 @@
-Saturn has many moons
-Venus 
-Eforie Sud
-Hello professor!
+Saturn has many stars
+Venussss 
+Eforie Nord
+Hello professor
+Hve a good day
